@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SilgueroM
+- 👀 I’m interested in Integrated Circuits and Semiconductors 
+- 🌱 I’m currently pursuing a Bachelor of Science in Electrical Engineering and a Minor in Semiconductors
+- 💞️ I’m looking to collaborate on projects relevant to my field
+- 📫 How to reach me: www.linkedin.com/in/miguel-silguero-b82988290
+- ⚡ Fun fact: I am a musician and outdoor enthusiast!
